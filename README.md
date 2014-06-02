@@ -12,4 +12,4 @@ To: 2 october 2014
 
 ## Things we like to do
 
-- Give a presentation about living in the Netherlands to a (high) school class
+- Give a presentation about living in The Netherlands to a (high) school class
